@@ -1,0 +1,1 @@
+Ссылка на коренной датасет - https://assets.contest.yandex.net/testsys/statement-file?hash=eyJhbGciOiJkaXIiLCJlbmMiOiJBMjU2R0NNIn0..gtHw-UhTnAMAC9OK.-O2zZRAE2zLf7Nq9oLSXu9qWScZLnCpVwz0OpeGe7P_o9AKtwGQzHdGV74-dfEyM89QpwMIkYfGCxQlxYCOoGeR8KCl8RjlzC0BFbykT6RlXLf0JEGBzGkr8JAaw.39OMlK9BOYws-HcM8bBJdw
